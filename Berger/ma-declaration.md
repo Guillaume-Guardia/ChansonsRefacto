@@ -5,7 +5,6 @@ Je rêve que je suis dans tes bras
 Je rêve que je te fais tout bas  
 Une déclaration, ma déclaration
 
-
 ## Couplet 2 (Papa)
 Quand je suis seule et que je peux inventer  
 Que tu es là tout près de moi  
@@ -24,7 +23,7 @@ Je voudrais tant mais je n'oserai pas
 J'aime mieux mettre dans ma chanson  
 Une déclaration, ma déclaration
 
-## Couplet 4 (Tout le monde)
+## Couplet 4 (Tout le monde) 1.39
 Une déclaration, ma déclaration
 
 ## Refrain (Tout le monde)
@@ -33,17 +32,17 @@ Pour te parler de nous
 Deux ou trois mots de tous les jours  
 C'est tout
 
-## Couplet 5 (Guillaume)
-Quand je repense à tous ces jours
-À tout l’amour que tu nous donnes
-Je veux te dire en quelques mots
+## Couplet 5 (Guillaume) 2.00
+Pour ton anniversaire ma ptite maman, 
+J'espère te faire plaisir
+Je veux te livrer en quelques mots
 Une déclaration, ma déclaration
 
 ## Couplet 6 (Guillaume)
 Toujours si douce, toujours si tendre  
-Généreuse et pleine d’attention
-On pense fort à toi  
-Ton amour nous réconforte 
+Généreuse et pleine d’attentions
+On t'aime très fort  
+Ton bonheur nous illumine 
 Une déclaration, ma déclaration
 
 ## Couplet 7 (Clément)

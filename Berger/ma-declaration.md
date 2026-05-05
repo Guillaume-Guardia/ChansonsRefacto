@@ -34,16 +34,16 @@ Deux ou trois mots de tous les jours
 C'est tout
 
 ## Couplet 5 (Guillaume)
-Quand je suis seule et que je peux rêver  
-Je rêve que je suis dans tes bras  
-Je rêve que je te fais tout bas  
+Quand je repense à tous ces jours
+À tout l’amour que tu nous donnes
+Je veux te dire en quelques mots
 Une déclaration, ma déclaration
 
 ## Couplet 6 (Guillaume)
-Je t'aime quand tu es près de moi  
-Je t'aime quand tu n'es pas là  
-Je pense à toi  
-Je t'aime quand tu souris  
+Toujours si douce, toujours si tendre  
+Généreuse et pleine d’attention
+On pense fort à toi  
+Ton amour nous réconforte 
 Une déclaration, ma déclaration
 
 ## Couplet 7 (Clément)
